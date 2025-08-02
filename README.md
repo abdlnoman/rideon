@@ -1,2 +1,2 @@
 # rideon plan
-to explore
+to explore more
