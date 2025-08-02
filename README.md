@@ -1,1 +1,1 @@
-# rideon olan
+# rideon plan
